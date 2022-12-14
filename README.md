@@ -5,7 +5,7 @@
 
 ### 🚀 Sobre mim
 Olá, me chamo Jonatas Thomazini, tenho 27 anos, Estudo Análise e Desenvolvimento de Sistemas na Universidade Cruzeiro do Sul - Mogi das Cruzes.
-Estou procurando oportunidades para aumentar minha experiência é conhecimento 
+Estou procurando oportunidades para aumentar minha experiência e conhecimento 
 
 
 📕- O que estou lendo no momento?                                                                                                                                          
